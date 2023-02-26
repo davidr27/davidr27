@@ -11,5 +11,5 @@
 
 *😄 Pronouns: He/Him
 
-*⚡ Fun fact: Experience in hotel industry and spanish speaker. **
+*⚡ Fun fact: Experience in hotel industry and spanish speaker.
 ***
